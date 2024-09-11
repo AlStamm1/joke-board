@@ -27,3 +27,4 @@ Why couldn't the bicycle stand up on its own? It was two tired.
 Why do birds fly south for the winter? 
 It's too far to walk!
 
+I woke up laughing today. I must've slept funny.
