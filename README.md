@@ -28,3 +28,5 @@ Why do birds fly south for the winter?
 It's too far to walk!
 
 I woke up laughing today. I must've slept funny.
+
+A clockmaker stands outside his burning workshop, watching in horror as all of his cherished timepieces went up in flames. All he could do was watch.
