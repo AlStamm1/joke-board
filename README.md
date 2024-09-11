@@ -16,3 +16,6 @@ In a snowbank.
 I don't always tell dad jokes, but when I do he laughs.
 
 I really thought my terrarium would have developed its own weather patterns by now. It's just so anticlimactic.
+
+Why did the scarecrow win an award?
+He was outstanding in his field.
