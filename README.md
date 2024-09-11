@@ -17,5 +17,7 @@ I don't always tell dad jokes, but when I do he laughs.
 
 I really thought my terrarium would have developed its own weather patterns by now. It's just so anticlimactic.
 
+Why couldn't the bicycle stand up on its own? It was two tired.
+
 Why do birds fly south for the winter? 
 It's too far to walk!
