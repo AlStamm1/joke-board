@@ -28,3 +28,5 @@ Why do birds fly south for the winter?
 It's too far to walk!
 
 I woke up laughing today. I must've slept funny.
+
+Why don't bank tellers bike to work? They might lose their balance!
