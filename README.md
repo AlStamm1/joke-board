@@ -19,3 +19,8 @@ I really thought my terrarium would have developed its own weather patterns by n
 
 Why did the scarecrow win an award?
 He was outstanding in his field.
+
+Why couldn't the bicycle stand up on its own? It was two tired.
+
+Why do birds fly south for the winter? 
+It's too far to walk!
