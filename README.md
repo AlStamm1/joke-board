@@ -28,3 +28,5 @@ Why do birds fly south for the winter?
 It's too far to walk!
 
 I woke up laughing today. I must've slept funny.
+
+A Chlorine atom and a Sodium atom were walking together. Sodium said, "I think I just lost an electron!"  Chlorine asked, "Are you sure?" Sodium responded, "I'm positive!"
