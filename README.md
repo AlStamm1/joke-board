@@ -39,3 +39,5 @@ What do you call an angry carrot?
 A steamed veggie
 
 How do you build suspense?
+
+My grandfather poured his blood, sweat and tears into his career. Amazing man. Horrible chef.
