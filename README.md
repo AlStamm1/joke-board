@@ -50,3 +50,7 @@ V
 
 
 Greek philosopher goes to a tailor to get his pants mended. The tailor asks: “Euripides?” The professor replies: “Yes. Eumenides?”
+
+Why did the invisible man turn down the job offer?
+He couldn't see himself doing it
+
