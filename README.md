@@ -54,8 +54,5 @@ Greek philosopher goes to a tailor to get his pants mended. The tailor asks: “
 Why did the invisible man turn down the job offer?
 He couldn't see himself doing it
 
-
-*Simon 
-
 A friend asked me, why don't eggs tells jokes?
 I was like they will laugh and crack their shells.
