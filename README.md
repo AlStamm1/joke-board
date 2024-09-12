@@ -37,3 +37,5 @@ A clockmaker stands outside his burning workshop, watching in horror as all of h
 
 What do you call an angry carrot?
 A steamed veggie
+
+How do you build suspense?
