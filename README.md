@@ -56,3 +56,7 @@ He couldn't see himself doing it
 
 A friend asked me, why don't eggs tells jokes?
 I was like they will laugh and crack their shells.
+
+I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+
+
