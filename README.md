@@ -43,9 +43,14 @@ How do you build suspense?
 
 My grandfather poured his blood, sweat and tears into his career. Amazing man. Horrible chef.
 
+
 V
 V
 *My control key seems to be broken
 
+
+Greek philosopher goes to a tailor to get his pants mended. The tailor asks: “Euripides?” The professor replies: “Yes. Eumenides?”
+
 Why did the invisible man turn down the job offer?
 He couldn't see himself doing it
+
