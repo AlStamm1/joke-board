@@ -47,3 +47,5 @@ V
 V
 *My control key seems to be broken
 
+Why did the invisible man turn down the job offer?
+He couldn't see himself doing it
