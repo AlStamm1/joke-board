@@ -40,4 +40,10 @@ A steamed veggie
 
 How do you build suspense?
 
+
 My grandfather poured his blood, sweat and tears into his career. Amazing man. Horrible chef.
+
+V
+V
+*My control key seems to be broken
+
