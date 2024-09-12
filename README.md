@@ -39,3 +39,7 @@ What do you call an angry carrot?
 A steamed veggie
 
 How do you build suspense?
+
+V
+V
+*My control key seems to be broken
