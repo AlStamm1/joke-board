@@ -35,6 +35,7 @@ A Chlorine atom and a Sodium atom were walking together. Sodium said, "I think I
 
 A clockmaker stands outside his burning workshop, watching in horror as all of his cherished timepieces went up in flames. All he could do was watch.
 
+What do you call an angry carrot?
+A steamed veggie
+
 How do you build suspense?
-
-
